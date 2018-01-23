@@ -1,1 +1,1 @@
-Can he do it?
+Is he going to make it?
